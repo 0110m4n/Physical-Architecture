@@ -1,0 +1,2 @@
+Lien pour y accéder et voir de plus près  : 
+https://miro.com/welcomeonboard/YWZSdTNtYWpmQk1HQnBoaE5JMGdoWWsyRFBtTk0vTTQ3M3dyemowZEVIZE1BU2ZONUY5R2RBUlpqUlRSL0tXNjRPZHIyNDk1c2hhU0lDajlaZnZvVEVySDhlcUMxbHo0aHczR3ozREhhUGJ2dE5QR2Z6Nm4vaFhDdkcwZjBvMUhNakdSWkpBejJWRjJhRnhhb1UwcS9BPT0hdjE=?share_link_id=292459560532
